@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @bigwilly187
 - 👀 I’m interested in Jailbreaking my ps3 lol
-- 🌱 I’m currently learning to jerk off in 5 minutes hahahahaha
+- 🌱 I’m currently learning to wichsen off in 5 minutes hahahahaha
 - 📫 How to reach me idk
 
 <!---
